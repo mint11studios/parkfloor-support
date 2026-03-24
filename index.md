@@ -7,7 +7,7 @@
                                                                                                                                                                                         
   ## Support                                            
 
-  Having trouble? Email us at **support@mint11studios.com** and we'll get back to you as soon as possible.                                                                              
+  Having trouble? Email us at **gupta.samarth@gmail.com** and we'll get back to you as soon as possible.                                                                              
    
   ## Common Questions                                                                                                                                                                   
                                                         
